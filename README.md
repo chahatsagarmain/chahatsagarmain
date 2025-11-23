@@ -42,11 +42,6 @@
 
 ## 💬 Let’s Connect  
 - Email: chahatsagar2003@gmail.com
-- Open to DM/discussion on GitHub for collaboration, mentorship or research questions  
-
----
-
-> “Stay curious”  
-> — Chahat Sagar  
+- Open to DM/discussion on GitHub for collaboration.
 
 ---
